@@ -1,0 +1,1 @@
+belajar tipis tipis dulu
